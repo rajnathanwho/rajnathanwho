@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @rajnathanwho
+- 👀 I’m interested in 
+- 🌱 I’m currently learning how to code in python, and want to learn other languages as well
+- 📫 How to reach me: instagram at rajnathanwho
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: I make music in my free time ahahah
